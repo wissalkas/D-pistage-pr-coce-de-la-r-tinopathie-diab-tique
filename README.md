@@ -1,1 +1,1 @@
-# D-pistage-pr-coce-de-la-r-tinopathie-diab-tique
+# Dépistage précoce de la rétinopathie diabétique
